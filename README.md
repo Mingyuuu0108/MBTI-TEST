@@ -1,2 +1,0 @@
-# MBTI-TEST
-dddd
